@@ -1,6 +1,6 @@
 # 榴莲草莓向日葵黄瓜丝瓜污
 
-### <a href="https://github.com/siguaha/wuxian/issues/1">👉👉👉♥♥点此进入♥观看入口👈👉👉</a>
+<hr/> <a href="https://github.com/siguaha/najh/issues/2">👉👉👉♥♥点此进入♥观看入口👈👉👉</a><hr/>
 
 无数大道反噬，但是那人竟然一点事情都没有，可怕，真的是太可怕了，最后天道好像出现了他才退却。”
 
